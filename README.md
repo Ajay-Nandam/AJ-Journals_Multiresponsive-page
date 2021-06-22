@@ -1,0 +1,1 @@
+# AJ-Journals_Multiresponsive-page
